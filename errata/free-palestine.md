@@ -1,6 +1,6 @@
 
-**"The British told us that there are some hundred thousand n\*\*\*\*\*\* [in Palestine], and for those there is no value"**  
-\-\- Chaim Weizmann, 1st President of the *"State of Israel"*
+**"The British told us that there are some hundred thousand n\*\*\*\*\*\* [in Palestine], and for those there is no value."**  
+\-\- Chaim Weizmann, 1st President of the so-called *"State of Israel"*
 
 # Dedication
 My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a racist, colonial, far-right ideology conceived in 18th century Europe by racist Europeans.  
