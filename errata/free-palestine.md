@@ -1,10 +1,10 @@
 
 **"The British told us that there are some hundred thousand n\*\*\*\*\*\* [in Palestine], and for those there is no value"**  
-\-\- Chaim Weizmann, 1st President of the "*State of Israel*"
+\-\- Chaim Weizmann, 1st President of the *"State of Israel"*
 
 # Dedication
-My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a colonial, far-right ideology conceived in 18th century Europe by racist Europeans.
-My efforts are **dedicated** to those men and women of Palestine who resisted the occupation, each in their own way:
+My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a racist, colonial, far-right ideology conceived in 18th century Europe by racist Europeans.  
+All my efforts are **dedicated** to those men and women of Palestine who resisted the occupation, each in their own way:
 
 
 ## Faris Odeh (3 Dec 1985 — 8 Nov 2000, Age 14) 
@@ -22,3 +22,16 @@ Born in Gaza in 1985, he was on the frontline of the Second Intifada when it eru
 A newly-graduated medic who volunteered for the Palestinian Medical Relief Society, Razan Najjar was engaged in treating the wounded protesters at the 2018 Great March of Return at the Gaza Siege Wall. While attending to her duties (clearly marked as a medic), she was shot [**intentionally**](https://www.aljazeera.com/news/2018/7/18/israeli-forces-deliberately-killed-palestinian-paramedic-razan) by an IDF sniper alongside several of her medical colleagues, some of whom sustained life-crippling injuries. Razan fell into a coma and was pronounced dead hours later.  
 
 Disgustingly enough, the IDF's official social media accounts published a highly edited and grossly mistranslated video clip of Razan, allegedly stating to the camera that she was a "human shield", a favored piece of terminology in Israeli propaganda.
+
+
+## Shireen Abu Akleh (3 Apr 1971 — 11 May 2022, Age 51)
+![Shireen Abu Akleh](https://upload.wikimedia.org/wikipedia/commons/5/57/Shireen_Abu_Akleh_(4).jpg)
+
+Shireen served as Al-Jazeera's reporter in Palestine for over 2 decades, becoming a household name among several generation of Arabs. Her voice was synonymous with Al-Jazeera's reports on Palestinian events, and so it was a massive shock to millions of people when, while covering skirmishes in Jenin, she was shot and killed by an Israeli sniper in front of her own cameras. She wore a clearly marked **PRESS** vest that day, and the sniper continued to take potshots at her similarly-attired colleagues after 
+shooting her.   
+
+A devout Christian, Shireen's casket was displayed in Jenin and Ramallah where hundreds of thousands of Palestinians paid final respects, and was then taken to Jerusalem for church services and burial. However, Israel was not done with her, as they attacked her funeral and savagely beat her pallbearers in a now-notorious video, causing the casket to almost fall to the ground.  
+
+![attack on Shireen's funeral](https://www.ft.com/__origami/service/image/v2/images/raw/https:%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F1a7dc5ee-d6e9-4846-91e2-05313dc3d39b.png?dpr=2&fit=scale-down&quality=medium&source=next&width=700)
+
+In an infuriatingly familiar manner, the IDF alleged that she was killed by Palestinian fire despite the fact that there were no Palestinian fighters in that area, and published several unrelated videos as "evidence". Several months and obstruction attempts later, Israel admitted to firing upon Shireen, but only well after the media attention died down. 
