@@ -25,7 +25,7 @@ Disgustingly enough, the IDF's official social media accounts published a highly
 
 
 ## Shireen Abu Akleh (3 Apr 1971 — 11 May 2022, Age 51)
-![Shireen Abu Akleh](https://upload.wikimedia.org/wikipedia/commons/5/57/Shireen_Abu_Akleh_(4).jpg)
+![Shireen Abu Akleh](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Shireen_Abu_Akleh.jpg/343px-Shireen_Abu_Akleh.jpg)
 
 Shireen served as Al-Jazeera's reporter in Palestine for over 2 decades, becoming a household name among several generation of Arabs. Her voice was synonymous with Al-Jazeera's reports on Palestinian events, and so it was a massive shock to millions of people when, while covering skirmishes in Jenin, she was shot and killed by an Israeli sniper in front of her own cameras. She wore a clearly marked **PRESS** vest that day, and the sniper continued to take potshots at her similarly-attired colleagues after 
 shooting her.   
