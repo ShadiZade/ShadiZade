@@ -38,6 +38,6 @@ In an infuriatingly familiar manner, the IDF alleged that she was killed by Pale
 
 
 ## Iyad Hallaq (1988 — 20 May 2020, Age 32)
-![Iyad Hallaq](https://media.almayadeen.tv/archive/image/2020/5/30/8898b993-4db9-4e9b-86b2-b09b4f717990.jpg)
+![Iyad Hallaq](https://israelpalestinetimeline.org/wp-content/uploads/2020/05/EyadHallaq-e1590907466260.jpg)
 
 Iyad was a severely autistic man living in occupied Quds (Jerusalem). He was on his way to a special education facility with his caretaker, when Israeli police started shouting at him, scaring him. He was confused and started to run, and despite his caretaker's attempts to explain his conditions, he was summarily executed, 7 bullets entering his body from 3 M-16 rifles firing simultaneously. As usual, Israeli media attempted to portray him as a "dangerous terrorist" reaching for a gun, but then backed down when independent investigation showed that he had no weapons on his person. No one has been punished or even reprimanded for this crime. 
