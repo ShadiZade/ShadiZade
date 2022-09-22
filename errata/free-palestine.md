@@ -3,7 +3,7 @@
 \-\- Chaim Weizmann, 1st President of the so-called *"State of Israel"*
 
 # Dedication
-My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a racist, colonial, far-right ideology conceived in 18th century Europe by racist Europeans.  
+My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a racist, colonial, far-right ideology conceived in 19th century Europe by racist Europeans.  
 All my efforts are **dedicated** to those men and women of Palestine who resisted the occupation, each in their own way:
 
 
@@ -34,4 +34,10 @@ A devout Christian, Shireen's casket was displayed in Jenin and Ramallah where h
 
 ![attack on Shireen's funeral](https://www.ft.com/__origami/service/image/v2/images/raw/https:%2F%2Fd1e00ek4ebabms.cloudfront.net%2Fproduction%2F1a7dc5ee-d6e9-4846-91e2-05313dc3d39b.png?dpr=2&fit=scale-down&quality=medium&source=next&width=700)
 
-In an infuriatingly familiar manner, the IDF alleged that she was killed by Palestinian fire despite the fact that there were no Palestinian fighters in that area, and published several unrelated videos as "evidence". Several months and obstruction attempts later, Israel admitted to firing upon Shireen, but only well after the media attention died down. 
+In an infuriatingly familiar manner, the IDF alleged that she was killed by Palestinian fire despite the fact that there were no Palestinian fighters in that area, and published several unrelated videos as "evidence". Several months and obstruction attempts later, Israel [admitted](https://edition.cnn.com/2022/09/05/middleeast/idf-shireen-abu-akleh-investigation-intl/index.html) to firing upon Shireen, but only well after the media attention died down. 
+
+
+## Iyad Hallaq (1988 — 20 May 2020, Age 32)
+![Iyad Hallaq](https://media.almayadeen.tv/archive/image/2020/5/30/8898b993-4db9-4e9b-86b2-b09b4f717990.jpg)
+
+Iyad was a severely autistic man living in occupied Quds (Jerusalem). He was on his way to a special education facility with his caretaker, when Israeli police started shouting at him, scaring him. He was confused and started to run, and despite his caretaker's attempts to explain his conditions, he was summarily executed, 7 bullets entering his body from 3 M-16 rifles firing simultaneously. As usual, Israeli media attempted to portray him as a "dangerous terrorist" reaching for a gun, but then backed down when independent investigation showed that he had no weapons on his person. No one has been punished or even reprimanded for this crime. 
