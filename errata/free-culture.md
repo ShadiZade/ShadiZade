@@ -1,5 +1,5 @@
 # Free Culture
-Free Culture: The full demonetization and reclamation of cultural heritage from the hands of philistine capitalist profiteers to the hands of the common people.
+Free Culture: The full demonetization and reclamation of cultural heritage from the hands of philistine capitalist profiteers into the hands of the common people.
 
 ## Why Free Culture?
 Because:

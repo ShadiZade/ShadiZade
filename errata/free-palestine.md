@@ -14,7 +14,7 @@ Born in Gaza in 1985, he was on the frontline of the Second Intifada when it eru
 
 ![Faris Odeh throwing rocks](https://upload.wikimedia.org/wikipedia/en/b/bf/Faris_odeh03a.jpg)
 
-10 days after this iconic image was taken, Faris Odeh was shot point-blank by an IDF soldier while throwing rocks at the Merkava-class tank. The IDF prevented medical services from reaching him for a whole hour, and he was pronounced dead on arrival. A week earlier, the IDF had shot and killed Faris's cousin Shadi Odeh. 
+10 days after this iconic image of him was taken, Faris Odeh was shot point-blank by an IDF soldier while throwing rocks at the Merkava-class tank. The IDF prevented medical services from reaching him for a whole hour, and he was pronounced dead on arrival. A week earlier, the IDF had shot and killed Faris's cousin Shadi Odeh. 
 
 ## Razan Najjar (13 Sep 1997 — 1 Jun 2018, Age 20)
 ![Razan Najjar](https://upload.wikimedia.org/wikipedia/ar/4/40/%D8%B1%D8%B2%D8%A7%D9%86_%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%B1.jpg)
@@ -40,4 +40,4 @@ In an infuriatingly familiar manner, the IDF alleged that she was killed by Pale
 ## Iyad Hallaq (1988 — 20 May 2020, Age 32)
 ![Iyad Hallaq](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Eyad_al-Hallaq_002.jpg/360px-Eyad_al-Hallaq_002.jpg)
 
-Iyad was a severely autistic man living in occupied Quds (Jerusalem). He was on his way to a special education facility with his caretaker, when Israeli police started shouting at him, scaring him. He was confused and started to run, and despite his caretaker's attempts to explain his conditions, he was summarily executed, 7 bullets entering his body from 3 M-16 rifles firing simultaneously. As usual, Israeli media attempted to portray him as a "dangerous terrorist" reaching for a gun, but then backed down when independent investigation showed that he had no weapons on his person. No one has been punished or even reprimanded for this crime. 
+Iyad was a severely autistic man living in occupied Quds (Jerusalem). He was on his way to a special education facility with his caretaker, when Israeli police started shouting at him, scaring him. He was confused and started to run, and despite his caretaker's attempts to explain his condition, he was summarily executed, 7 bullets entering his body from 3 M-16 rifles firing simultaneously. As usual, Israeli media attempted to portray him as a "dangerous terrorist" reaching for a gun, but then backed down when independent investigation showed that he had no weapons on his person. No one has been punished or even reprimanded for this crime. 
