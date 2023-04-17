@@ -3,7 +3,7 @@
 \-\- Chaim Weizmann, 1st President of the so-called *"State of Israel"*
 
 # Dedication
-My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a racist, colonial, far-right ideology conceived in 19th century Europe by racist Europeans.  
+My grandfathers were expelled from the land their ancestors ploughed for a millennium, all in service of Zionism, a racist, colonial, far-right ideology conceived in 19th century Europe by racist Europeans.
 All my efforts are **dedicated** to those men and women of Palestine who resisted the occupation, each in their own way:
 
 
